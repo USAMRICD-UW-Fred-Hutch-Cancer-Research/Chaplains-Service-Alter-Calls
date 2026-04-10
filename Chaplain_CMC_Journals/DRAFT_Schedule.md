@@ -1,52 +1,103 @@
-Submission (of art and science, law and order, and for World Fair Israel Day of)
-Atonement (forgiveness)
-Turning the head when hit (rolling with punches)
-Higher Power (God El)
-Giving and REstoration of hope
-doing something some someone else
-Doing more than the church did about something important
-Richeous movements and the government
-satanic avoidance, and defenses
-Calvary and Congress
-Unionizing
-Community Boundries
-Ancient Artifacts
-Contact Amgels
-Burial
-War
-Treason
-Giving Back For SOmething
-Sponsoring Somthing
-Brutality in War
-Parking and lots
-Putting down things bad habbits
-Sexual Lessons (Breeding)
-Incorrect Mating Habbits (Inbred)
-Sex after marriage (old people)
-Misscarriage War, Continued War
-Break for repair of church
-Break for repair of church
-Break for repair of church
-Break for repair of church
-Temple artifacts come out (Decoration)
-Music clean spirits (Dont let angry or upset people into temple)
-Security (Barriers, Recruitment, atonemens, confessions, set alter fire, smoke our pycnogonid, VirusTC, burn sick and sacrafice)
-Frangrence must be mined from farm (plants must be harvested, fruits excluded, vegatable only)
-clean all grounds
-Start replant, prepare food stock, dry starts now, win ROI
-Sew new ONLY
-sports games (with extra NEVER SPOIL FOOD, SALMON IF ALASKA CAN TRANSFER VIA SILK ROAD SULFUR THEY LIKE, NUCLEAR NO VIBE ALLOWED)
-Round table about new wars if soldiers are not polite from other sports nations. (silk road unite tribes of Israel, MUST HAVE 12 OR GATE WILL NOT OPEN WITH ROMULAN.) No racism.
-WAR GAMES ONLY, ONLY BEEFING NATIONS, LOSERS GET TURNED INTO CATTLE AND KILLED FOR BURNING
-Burned offering, ONLY FLEW INFECTED VICTIMS, ELSE EAT WHOLY, ALL PARTS, NATIVES LIKE BONES BROTH, LININGS, ETC, SPACE
-Returning of War nations who lost in games for real war trials. OFFER GAMES BEFORE REAL WAR? NEVER OFFER IF ENEMY SPANS LARGER THAN OWN FORCES.
-WIN WAR ALL NATIONS MUST LOSE ONE PEICE FOR CHESS. CHESS MATES CHOSEN FROM WAR PARTY WITH MOST LOSS. WINNERS NEVER GIVE UP CHESS PEICES, LOSERS NEVER GET CHESS PEICES TO PLAY CHESS. CHESS MATCH WON ONLY CONTINUES FOREVER, NOT LOSS. ONLY SARAFICE THOSE WHO LACK MENTAL ABILITY TO LEARN TO PLAY CHESS. PYCNOGONIDS DONT LIKE CHESS OR IVORY.
-WAR GAMES OR CHESS
-WAR GAMES OR CHESS
-WAR GAMES OR CHESS
-WAR ONLY IF NOT LOST CHESS, WINNER MUST ATTACK MAN WHO SETS CHESS ILLEGAL MOVES
-WAR HAS LOST FLAVOR IF ENEMY HAS NOT PRODUCED HEALTHY GAME ANIMALS. WAR PROCEEDS
-WAR MUST END. NO WAR OVER 2 YEARS. NO WAR OVER FOOD WITH HUNGRY PEOPLE. 
-SEIGE AND BURNING (PASSOVER)
-RAMPARTS AND BUTCHERING LIVESTOCK WHILE AIR IS BEING WARTORN PROVINCE
-BREATHING AND RELAXING TO DO ONE'S WORK FOR CHIVALRY WITH ANNOINTED LEARNING
+1. Submission (of art and science, law and order, and for World Fair Israel Day of)
+
+2. Atonement (forgiveness)
+
+3. Turning the head when hit (rolling with punches)
+
+4. Higher Power (God El)
+
+5. Giving and REstoration of hope
+
+6. doing something some someone else
+
+7. Doing more than the church did about something important
+
+8. Richeous movements and the government
+
+9. satanic avoidance, and defenses
+
+10. Calvary and Congress
+
+11. Unionizing
+
+12. Community Boundries
+
+13. Ancient Artifacts
+
+14. Contact Amgels
+
+15. Burial
+
+16. War
+
+17. Treason
+
+18. Giving Back For SOmething
+
+19. Sponsoring Somthing
+
+20. Brutality in War
+
+21. Parking and lots
+
+22. Putting down things bad habbits
+
+23. Sexual Lessons (Breeding)
+
+24. Incorrect Mating Habbits (Inbred)
+
+25. Sex after marriage (old people)
+
+26. Misscarriage War, Continued War
+
+27. Break for repair of church
+
+28. Break for repair of church
+
+29. Break for repair of church
+
+30. Break for repair of church
+
+31. Temple artifacts come out (Decoration)
+
+32. Music clean spirits (Dont let angry or upset people into temple)
+
+33. Security (Barriers, Recruitment, atonemens, confessions, set alter fire, smoke our pycnogonid, VirusTC, burn sick and sacrafice)
+
+34. Frangrence must be mined from farm (plants must be harvested, fruits excluded, vegatable only)
+
+35. clean all grounds
+
+36. Start replant, prepare food stock, dry starts now, win ROI
+
+37. Sew new ONLY
+
+38. sports games (with extra NEVER SPOIL FOOD, SALMON IF ALASKA CAN TRANSFER VIA SILK ROAD SULFUR THEY LIKE, NUCLEAR NO VIBE ALLOWED)
+
+39. Round table about new wars if soldiers are not polite from other sports nations. (silk road unite tribes of Israel, MUST HAVE 12 OR GATE WILL NOT OPEN WITH ROMULAN.) No racism.
+
+40. WAR GAMES ONLY, ONLY BEEFING NATIONS, LOSERS GET TURNED INTO CATTLE AND KILLED FOR BURNING
+
+41. Burned offering, ONLY FLEW INFECTED VICTIMS, ELSE EAT WHOLY, ALL PARTS, NATIVES LIKE BONES BROTH, LININGS, ETC, SPACE
+
+42. Returning of War nations who lost in games for real war trials. OFFER GAMES BEFORE REAL WAR? NEVER OFFER IF ENEMY SPANS LARGER THAN OWN FORCES.
+
+43. WIN WAR ALL NATIONS MUST LOSE ONE PEICE FOR CHESS. CHESS MATES CHOSEN FROM WAR PARTY WITH MOST LOSS. WINNERS NEVER GIVE UP CHESS PEICES, LOSERS NEVER GET CHESS PEICES TO PLAY CHESS. CHESS MATCH WON ONLY CONTINUES FOREVER, NOT LOSS. ONLY SARAFICE THOSE WHO LACK MENTAL ABILITY TO LEARN TO PLAY CHESS. PYCNOGONIDS DONT LIKE CHESS OR IVORY.
+
+44. WAR GAMES OR CHESS
+
+45. WAR GAMES OR CHESS
+
+46. WAR GAMES OR CHESS
+
+47. WAR ONLY IF NOT LOST CHESS, WINNER MUST ATTACK MAN WHO SETS CHESS ILLEGAL MOVES
+
+48. WAR HAS LOST FLAVOR IF ENEMY HAS NOT PRODUCED HEALTHY GAME ANIMALS. WAR PROCEEDS
+
+49. WAR MUST END. NO WAR OVER 2 YEARS. NO WAR OVER FOOD WITH HUNGRY PEOPLE.
+
+50. SEIGE AND BURNING (PASSOVER)
+
+51. RAMPARTS AND BUTCHERING LIVESTOCK WHILE AIR IS BEING WARTORN PROVINCE
+
+52. BREATHING AND RELAXING TO DO ONE'S WORK FOR CHIVALRY WITH ANNOINTED LEARNING
