@@ -3,7 +3,7 @@
 # 3. Turning the head when hit (rolling with punches)
 # 4. Higher Power (God El)
 # 5. Giving and REstoration of hope
-# 6. doing someTHING for someone else
+# 6. doing someTHING for someone else (Labor El, Payer if disabled)
 # 7. Doing more than the church did about something important
 # 8. Richeous movements and the government
 # 9. satanic avoidance, and defenses
