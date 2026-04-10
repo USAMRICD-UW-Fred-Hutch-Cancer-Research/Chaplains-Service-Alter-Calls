@@ -8,7 +8,7 @@ Chaplains Service - Altar Calls
 Program Overview
 ----------------
 
-Welcome to the official repository for the Command Religious Program curriculum. This archive represents a pivotal transition in our organizational and spiritual framework: the shift from the traditional Franciscan leadership model to a modern, academically rigorous foundation directed by the Institute for Scripture Research.
+Welcome to the official repository for the Command Religious Program curriculum. This archive represents a pivotal transition in our organizational and spiritual framework: the shift from the traditional Franciscan leadership model to a modern, academically rigorous foundation supported by the Institute for Scripture Research.
 
 Designed for internal use, this repository provides the foundational lecture materials, historical context, and academic resources necessary to support the spiritual fitness, ethical grounding, and peaceful development of our personnel through ongoing international and domestic challenges.
 
