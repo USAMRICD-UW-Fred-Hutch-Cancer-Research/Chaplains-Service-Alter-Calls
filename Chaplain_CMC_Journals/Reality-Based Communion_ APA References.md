@@ -70,8 +70,17 @@ Rome did not endorse these rogue abuses or the cannibalistic medical rituals of 
 ### **The Modern Standard of Communion**
 
 Under this command, when we partake in Communion, we are recognizing the ultimate, reality-based sacrifice of a King who gave away His last ounce of survival energy for His people.  
-Moving forward, Communion will reflect this truth. We are breaking bread and sipping wine in absolute peace, recognizing the historical fellowship of our community and our families. Furthermore, because we are an institution of order and discipline, we maintain strict compliance with all modern state and federal laws regarding the distribution of alcohol, especially concerning the presence of minors.  
-We will no longer obscure the King's sacrifice with pagan symbolism. We will eat, we will drink, and we will honor the literal history and geography of a leader who surrendered everything to secure the future of His kingdom.
+Moving forward, Communion will reflect this truth. We are breaking bread and sipping wine in absolute peace, recognizing the historical fellowship of our community and our families. Furthermore, because we are an institution of order and discipline, we maintain strict compliance with all modern state and federal laws regarding the distribution of alcohol, especially concerning the presence of minors.
+
+For centuries, Communion has been clouded by medieval mysticism. We are restoring order to this practice. The elements we use are standard, safe provisions that are fully compliant with all modern FDA regulations and federal laws. We strictly reject any pagan, historical Roman practices of literal blood consumption.
+
+For those of the Catholic tradition, and for all who approach this table, the journals outline a critical, biological reality that must be accepted before you partake:
+
+1. **The Reality of the Portion:** You must acknowledge the medical reality of crucifixion as an execution of attrition. The bread and the wine present at the Last Supper were Jesus’s physical sustenance. They were the carbohydrates and hydration necessary to sustain His blood volume and muscle energy on the cross.  
+2. **The Transfer of Sustenance:** You must accept that what you are receiving was Jesus’s own survival portion. It was intended to supply *His* blood and *His* flesh for the impending torture. By accepting the bread and the wine, you are literally taking His survival calories and hydration away from Him. You are consuming a portion that was not yours to begin with, ensuring He faced the cross physically starved and dehydrated on your behalf.  
+3. **The Only Acceptable Payment:** Because you are consuming the very elements that would have sustained His flesh and blood, you incur a profound debt. You must accept that your absolute, unyielding loyalty to the Word of God is the *only* acceptable payment for taking His portion.
+
+We will no longer obscure the King's sacrifice with pagan symbolism. This is not a symbolic ritual; it is the acknowledgment of a tactical, physical sacrifice made by a King for His people.  We will eat, we will drink, and we will honor the literal history and geography of a leader who surrendered everything to secure the future of His kingdom.
 
 ### ---
 
