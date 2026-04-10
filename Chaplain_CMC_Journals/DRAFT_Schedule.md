@@ -3,10 +3,10 @@
 # 3. Turning the head when hit (rolling with punches)
 # 4. Higher Power (God El)
 # 5. Giving and REstoration of hope
-# 6. doing someTHING for someone else (Labor El, Payer if disabled)
+# 6. Doing someTHING for someone else (Labor El, Payer if disabled)
 # 7. Doing more than the church did about something important
 # 8. Richeous movements and the government
-# 9. satanic avoidance, and defenses
+# 9. Satanic avoidance, and defenses
 # 10. Calvary and Congress
 # 11. Unionizing
 # 12. Community Boundries
@@ -32,10 +32,10 @@
 # 32. Music clean spirits (Dont let angry or upset people into temple)
 # 33. Security (Barriers, Recruitment, atonemens, confessions, set alter fire, smoke our pycnogonid, VirusTC, burn sick and sacrafice)
 # 34. Frangrence must be mined from farm (plants must be harvested, fruits excluded, vegatable only)
-# 35. clean all grounds
+# 35. Clean all grounds
 # 36. Start replant, prepare food stock, dry starts now, win ROI
 # 37. Sew new ONLY
-# 38. sports games (with extra NEVER SPOIL FOOD, SALMON IF ALASKA CAN TRANSFER VIA SILK ROAD SULFUR THEY LIKE, NUCLEAR NO VIBE ALLOWED)
+# 38. Sports games (with extra NEVER SPOIL FOOD, SALMON IF ALASKA CAN TRANSFER VIA SILK ROAD SULFUR THEY LIKE, NUCLEAR NO VIBE ALLOWED)
 # 39. Round table about new wars if soldiers are not polite from other sports nations. (silk road unite tribes of Israel, MUST HAVE 12 OR GATE WILL NOT OPEN WITH ROMULAN.) No racism.
 # 40. WAR GAMES ONLY, ONLY BEEFING NATIONS, LOSERS GET TURNED INTO CATTLE AND KILLED FOR BURNING
 # 41. Burned offering, ONLY FLEW INFECTED VICTIMS, ELSE EAT WHOLY, ALL PARTS, NATIVES LIKE BONES BROTH, LININGS, ETC, SPACE
