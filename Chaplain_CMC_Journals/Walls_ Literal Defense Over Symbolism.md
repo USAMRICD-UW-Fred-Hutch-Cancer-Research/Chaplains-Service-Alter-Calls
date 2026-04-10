@@ -1,6 +1,7 @@
 **The Reality of the Rampart: Why True Defense Requires Literal Walls, Not Symbolic Metaphors**  
 In the quiet halls of academia and the insulated sanctuaries of philosophical theology, a wall is often reduced to a metaphor. It is analyzed as a symbol of division, a psychological boundary, or an abstract representation of spiritual fortification. But when the enemy is at the gates, when kinetic threats bear down on a vulnerable population, symbolism offers no shelter. A metaphor has never stopped a bullet. A poetic interpretation has never repelled a siege.  
-The transition from symbolic interpretation to literal, reality-based action is not just a theological necessity; it is a tactical imperative. To understand why building a literal wall to protect a city is infinitely superior to finding symbolism within it, one must look to the ethos of the United States Marine Corps. For a Marine, a wall is not an abstract concept. It is the physical manifestation of duty, order, and survival.  
+The transition from symbolic interpretation to literal, reality-based action is not just a theological necessity; it is a tactical imperative. To understand why building a literal wall to protect a city is infinitely superior to finding symbolism within it, one must look to the ethos of the United States Marine Corps. For a Marine, a wall is not an abstract concept. It is the physical manifestation of duty, order, and survival.
+
 Here is everything that building and holding a wall means to the U.S. Marine Corps.
 
 ### **1\. The Demarcation Between Order and Chaos**
