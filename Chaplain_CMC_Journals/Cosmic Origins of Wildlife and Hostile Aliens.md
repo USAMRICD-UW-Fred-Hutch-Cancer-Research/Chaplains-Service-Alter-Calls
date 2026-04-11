@@ -2,7 +2,7 @@
 **Subject: The Doctrine of the Wild and the Reality of Extraterrestrial Life**  
 **Author: Command Chaplaincy**  
 
-A question frequently arises within the ranks, particularly as our Space Force expands (we are recruiting USMC) our operational footprint into the heavens: *What is the Command Chaplaincy’s stance on extraterrestrial life?* To answer this, we do not look to modern science fiction. We look to the physical heavens, the Torah, and the strict mandate left by the King of Israel. The Bible explicitly states that Elohim is the King of the universe. To accept His Word is to accept the absolute, operational reality that there are literal kingdoms and territories in space for Him to rule.
+The US Space Force is recruiting USMC Officers. A question frequently arises within the ranks, particularly as our Space Force expands our operational footprint into the heavens: *What is the Command Chaplaincy’s stance on extraterrestrial life?* To answer this, we do not look to modern science fiction. We look to the physical heavens, the Torah, and the strict mandate left by the King of Israel. The Bible explicitly states that Elohim is the King of the universe. To accept His Word is to accept the absolute, operational reality that there are literal kingdoms and territories in space for Him to rule.
 
 ### **PART 1: The Cosmic Origins of the Wild**
 
