@@ -6,7 +6,8 @@ A question frequently arises within the ranks, particularly as our Space Force e
 
 ### **PART 1: The Cosmic Origins of the Wild**
 
-When Genesis records that Elohim brought the animals to Earth, we must understand the logistical reality of that event. Jesus commanded His followers not to destroy the ancient texts, but to add to them and fulfill them. Therefore, as academics and men of order, we must base our understanding on the accepted, documented knowledge of antiquity.  
+When Genesis records that Elohim brought the animals to Earth, we must understand the logistical reality of that event. Jesus commanded His followers not to destroy the ancient texts, but to add to them and fulfill them. Therefore, as academics and men of order, we must base our understanding on the accepted, documented knowledge of antiquity. 
+
 Our ancestors meticulously mapped the cosmos, and those ancient records reveal the operational sources of Earth's wildlife. Earth is a sanctuary, populated by species relocated from other heavenly bodies within Elohim’s vast domain. The Zodiac is not a wheel of mysticism; it is a celestial map of origins. The animals we manage on Earth correlate directly to the stellar territories from which Elohim extracted them:
 
 * **Leo:** The celestial origin of the great cats.  
