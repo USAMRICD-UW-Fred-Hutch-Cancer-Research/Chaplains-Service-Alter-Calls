@@ -22,7 +22,7 @@ We are seeking capital investment for a multi-stage, deep-space satellite deploy
 
 * **Phase I: The Wide-Baseline Array (The "Listen" Phase)**  
   * **Objective:** Establish the general vector and amplitude of incoming cosmic radiation.  
-  * **Execution:** We will launch an initial array of sensor satellites into stable, wide orbits around Earth. By utilizing interferometry, we will measure the microscopic time delays between radiation impacts across the satellites. This will allow us to accurately triangulate the specific sector of the sky (e.g., the Cancer or Aquarius constellations) emitting the highest amplitude of lethal waves.  
+  * **Execution:** We will launch an initial array of sensor satellites into stable, wide orbits around Earth. By utilizing interferometry, we will measure the microscopic time delays between radiation impacts across the satellites. This will allow us to accurately triangulate the specific sector of the sky (e.g., the Cancer constellation) emitting the highest amplitude of lethal waves.  
 * **Phase II: The Vector Launch (The "Pursuit" Phase)**  
   * **Objective:** Isolate the source and determine the physical density of the drifting particle cloud.  
   * **Execution:** Once Phase I identifies the precise directional vector of a radiation spike, Round II satellites will be launched *directly along that vector* into deeper space. These units will be equipped with advanced spectrometers to catch and analyze the physical particles, acting as a forward-deployed early warning system.  
