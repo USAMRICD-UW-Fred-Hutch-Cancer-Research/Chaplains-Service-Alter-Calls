@@ -1,0 +1,13 @@
+**FOR COMMAND DISTRIBUTION: Chaplain CMC Journals**  
+**Subject: Logistical Realities of the Altar: Biomass, Sanitation, and the Lystra Incident**  
+**Author: Command Chaplaincy**  
+To fully understand the historical operations documented in the ISR Scriptures, we must strip away the mysticism surrounding "sacrifices" and look at them through the lens of ancient logistics and biological reality.  
+When the priest of Zeus brought bulls to the city gates of Lystra to honor Paul and Barnabas (Acts 14:13), we must analyze exactly what an ancient altar was. It was not a table of magic; it was the center of a city's biological supply chain and public health infrastructure.  
+There is a critical distinction in antiquity regarding what was burned and what was consumed.  
+**1\. The Smoke of Decay (Sanitation)**  
+In a reality-based operational theater, incinerating sick or diseased livestock is an act of vital sanitation. It is disease control. The smoke of a sick animal carries the signature of biological decay—the exact decay that Elohim’s medical mandate commands us to defeat. No true Commander accepts the smoke of disease. Even the pagan populations understood that their projected deity, Zeus, would turn away from the toxic, noxious smoke of corrupted biomass. You do not honor a high-ranking official by burning medical waste in their presence.  
+**2\. The Sustenance of the Vanguard (Logistics)**  
+The healthy animals, conversely, were not turned to ash. They were processed. The fat and unusable bones were burned (sending smoke upward), while the healthy, unblemished meat was roasted and eaten by the community and the priests. An ancient public sacrifice was, in reality, a city-wide feast. It was how a community distributed high-density protein to its population.  
+When the Lystra priest mobilized those bulls, he was not bringing the sick or the dying. He was bringing the absolute best logistical supply the city possessed. He intended to butcher the town’s prime livestock to feed the populace in a grand feast, honoring the men they believed to be the commanders of the cosmos.  
+Paul and Barnabas reacted with dismay and shut the operation down, not because the meat was sick, but because the chain of command was broken. They refused to allow the city’s logistical supply to be weaponized for idolatry. They halted the feast, redirected the crowd’s allegiance away from useless mythological ranks, and commanded them to look to the Living God—the true Architect of the rain, the seasons, and the biological sustenance they were trying to offer.  
+True authority does not require the smoke of our livestock; it requires our operational discipline.
