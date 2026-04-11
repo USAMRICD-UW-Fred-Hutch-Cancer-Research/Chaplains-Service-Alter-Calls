@@ -72,7 +72,7 @@ Rome did not endorse these rogue abuses or the cannibalistic medical rituals of 
 Under this command, when we partake in Communion, we are recognizing the ultimate, reality-based sacrifice of a King who gave away His last ounce of survival energy for His people.  
 Moving forward, Communion will reflect this truth. We are breaking bread and sipping wine in absolute peace, recognizing the historical fellowship of our community and our families. Furthermore, because we are an institution of order and discipline, we maintain strict compliance with all modern state and federal laws regarding the distribution of alcohol, especially concerning the presence of minors.
 
-For centuries, Communion has been clouded by medieval mysticism. We are restoring order to this practice. The elements we use are standard, safe provisions that are fully compliant with all modern FDA regulations and federal laws. We strictly reject any pagan, historical Roman practices of literal blood consumption.
+For centuries, Communion has been clouded by medieval mysticism. We are restoring order to this practice. The elements we use are standard, safe provisions that are fully compliant with all modern FDA regulations and federal laws. We strictly reject any pagan, historical practices of literal blood consumption.
 
 For those of the Catholic tradition, and for all who approach this table, the journals outline a critical, biological reality that must be accepted before you partake:
 
