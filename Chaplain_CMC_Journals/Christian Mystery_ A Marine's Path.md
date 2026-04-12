@@ -18,6 +18,7 @@ Cutting ties acts as a soul-cleansing watershed, removing the emotional baggage 
 ### **II. Confirmation and The Eucharist: The Fuel of the Vanguard**
 
 Following baptism, you must be confirmed as an enlisted soldier of the Lord, with the ultimate objective of operating with the discipline of a commissioned officer.  
+
 To sustain this fight, the USMC provides the Eucharist—our spiritual Chow Hall. Just as Marine Corps dining facilities provide high-calorie meals designed to fuel intensive training, Communion is our weekly operational rations. You are given an extra portion, a grace that was not yours, provided solely because you are willing to fight for the Ambassador who secured it for you.
 
 ### **III. The Sacraments of Healing: The HPSP Penance**
