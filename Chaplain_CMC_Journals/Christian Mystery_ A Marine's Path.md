@@ -40,7 +40,7 @@ Our mission now extends upward. I am ordering USMC support for the US Space Forc
 
 ### **V. The Liturgy and Funerals: The Homeric Command and Rebirth**
 
-The Liturgy explains how the Paschal Mystery is made present. As we established, Rome accepted Jesus because they recognized the Supreme Commander (Zeus/Barnabas) walked beside Him. Rome had to carry the Father, the Son, and the Holy Spirit through history, or it would have been lost. Barnabas means "son of the encouragement", acting as the son of the Father/Rabbi. We celebrate this unified chain of command.
+The Liturgy explains how the Paschal Mystery is made present. As we established, Rome accepted Jesus because they recognized the Supreme Commander (Zeus/Barnabas) walked beside Him. Rome had to carry the Father, the Son, and the Holy Spirit through history, or it would have been lost. Barnabas means "son of the encouragement", acting as the son of the Father/Rabbi. We celebrate this unified chain of command. Encouragement is the Holy Spirit.
 
 Finally, we address the end of the physical deployment: Funerals and Sacramentals. The human is a spiritual entity. The medical officer heals the body, but the Church heals the community spirit.
 
