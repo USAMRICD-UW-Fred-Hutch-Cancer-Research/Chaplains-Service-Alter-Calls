@@ -23,7 +23,7 @@ To sustain this fight, the USMC provides the Eucharist—our spiritual Chow Hall
 
 ### **III. The Sacraments of Healing: The HPSP Penance**
 
-Not every Marine will execute the Sacraments of Healing on a grand scale, but for the medical professionals of the USMC—specifically through the Health Professions Scholarship Program (HPSP)—healing is an organized, lifelong deployment.
+Focus on Domestic Deployments and Medicine. Every Marine will help someone. Not every Marine will execute the Sacraments of Healing on a grand scale, but for the medical professionals of the USMC—specifically through the Health Professions Scholarship Program (HPSP)—healing is an organized, lifelong deployment.
 
 HPSP is a penance of willful indentured servitude. For every year of education, housing, and food provided, the soldier owes a year of military service. Eight years of school turns into decades of mandatory service, continuing education, and deployments. If you abandon this post, you lose your license and face the brig.
 
