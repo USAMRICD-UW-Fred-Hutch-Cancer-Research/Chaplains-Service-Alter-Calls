@@ -75,6 +75,7 @@ We still learn about Zeus in school on weekdays, and Jesus on the weekends in Am
 When Joseph became known as Barnabah, this name means "Son of the father". 
 It means "Son of the teacher/rabbi", suggesting that Barnabah (Zeus) was the son of a Jewish Leader. 
 This is the celebration of the Father, the Son, and the Holy Spirit (memory). 
+
 Sacramentals and Funerals: Well, the human is a spiritual being. 
 When someone stops breathing, and their is an absence, 
 the church must help heal the community spirits as the medical professionals must help heal the physical bodies of whatever killed their friend. 
