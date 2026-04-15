@@ -11,7 +11,7 @@
 # 11. Unionizing
 # 12. Community Boundries
 # 13. Ancient Artifacts
-# 14. Contact Amgels
+# 14. Contact Angels
 # 15. Burial
 # 16. War
 # 17. Treason
