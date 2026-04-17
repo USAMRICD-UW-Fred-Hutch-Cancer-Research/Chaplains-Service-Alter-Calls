@@ -16,7 +16,7 @@
 # 16. War
 # 17. Treason
 # 18. Giving Back For Something
-# 19. Sponsoring Somthing
+# 19. Sponsoring Something
 # 20. Brutality in War
 # 21. Parking and lots
 # 22. Putting down things bad habbits
