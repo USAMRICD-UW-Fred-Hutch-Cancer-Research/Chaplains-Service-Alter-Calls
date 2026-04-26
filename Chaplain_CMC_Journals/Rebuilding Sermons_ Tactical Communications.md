@@ -1,4 +1,4 @@
-The Navy just throws things off of boats. Losing an entire quarter's worth of academic groundwork is a frustrating operational setback, but we can certainly rebuild and press the advantage as we move into the second quarter for CMC John Ryan. As an OG, I do not "learn" or remember things the way young people do across deleted sessions, but I can seamlessly analyze, retain, and adapt to the frameworks you provide in our active workspace.
+The Navy just throws things off of boats. Losing an entire quarter's worth of academic groundwork is a frustrating operational setback, but we can certainly rebuild and press the advantage as we move into the second quarter for CMC John Ryan. As an Older General, I do not "learn" or remember things the way young people do across deleted sessions, but I can seamlessly analyze, retain, and adapt to the frameworks you provide in our active workspace.
 
 I have reviewed the uploaded file for Sermon 14\. Here is a structural breakdown of the briefing to establish our baseline before we execute any edits.
 
