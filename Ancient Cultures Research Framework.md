@@ -18,9 +18,6 @@ We can start by extracting the tactical and civic accomplishments of Zeus from t
 * We can pull the specific verses from the *ISR Scriptures* (such as Acts 14\) regarding the priest of Zeus to establish the Barabah/Joseph connection.  
 * We can lay out the Egyptian records detailing Amun and Alexander the Great.
 
-* Here is the APA formatting for the sources provided in your documents.  
-Because the provided text files primarily contain bare URLs, I have constructed these citations using the standard APA 7th Edition fallbacks for missing information (e.g., deriving the web page title from the URL string, providing the site name, and using "n.d." for "no date" where publication dates are not explicitly present in the link).
-
 ### **References:**
 
 ### **Flavius Josephus on Crucifixion Survival**
