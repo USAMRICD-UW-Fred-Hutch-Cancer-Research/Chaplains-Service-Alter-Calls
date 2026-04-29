@@ -5,6 +5,8 @@ Chaplains Service - Altar Calls
 
 **Command Chaplain & Director:** Dr. Correo Hofstad
 
+**Sponsored by:** https://www.15thmeu.marines.mil/
+
 Program Overview
 ----------------
 
