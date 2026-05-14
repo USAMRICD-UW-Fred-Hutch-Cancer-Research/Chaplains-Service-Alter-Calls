@@ -27,7 +27,7 @@ Focus on Domestic Deployments and Medicine. Every Marine will help someone. Not 
 
 HPSP is a penance of willful indentured servitude. For every year of education, housing, and food provided, the soldier owes a year of military service. Eight years of school turns into decades of mandatory service, continuing education, and deployments. If you abandon this post, you lose your license and face the brig.
 
-I will die a medical officer. My company, Virus Treatment Centers (VirusTC), is the direct product of my penance as a medical indentured servant for God's people. I operate in highly hazardous environments like Fred Hutch. I have faced severe institutional betrayal, profound hostility, and toxic environments to hold this line. Why? Because that is the Christian Mystery.  
+I will die a medical officer. My company, Virus Treatment Centers (VirusTC), is the direct product of my penance as a medical indentured servant for God's people. I operate in highly hazardous environments like USAMRICD. I have faced severe institutional betrayal, profound hostility, and toxic environments to hold this line. Why? Because that is the Christian Mystery.  
 
 Growing up in Seattle, I watched the drug crisis destroy families. At four years old, I was sneaking onto trains to reach my father's boat just to escape it. I have shared meals with dealers and watched addiction take hold. Now, through VirusTC and the Cancer Moonshot Initiative, I reconcile those past associations by anointing the sick. I track the number of addicts we treat for cancer, striving to mathematically surpass the number of people I watched fall to drugs in my youth. That is operational atonement.
 

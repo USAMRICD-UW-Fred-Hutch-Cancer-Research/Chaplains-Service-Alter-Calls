@@ -45,7 +45,7 @@ Virus Treatment Centers [VirusTC] https://virustreatmentcenters.com, would be il
 
 VirusTC is a product of my Penance, as a medical slave of the US Government, founded as One Nation Under God. 
 I am a medical indentured servant for God's people. I know I will die a medical officer. 
-I am terrified of the diseases and Pycnogonids at Fred Hutch. I have been sick from working at Fred Hutch. 
+I am terrified of the diseases and Pycnogonids at cancer hospitals. I have been sick from working at USAMRICD. 
 I fight for a job that is not healthy, where I have been treated bad, where I was fired for reporting a rape, and caleld a nigger. 
 I fight for my Penance, because that is the Christian Mystery, and I dont know what would happen if I quit. 
 I grew up in Seattle, WA, a region plagued by drug use. 

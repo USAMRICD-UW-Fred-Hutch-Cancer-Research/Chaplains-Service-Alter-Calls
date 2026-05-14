@@ -25,7 +25,7 @@ This is a critical directive for the congregation today. Not everyone has the po
 If you cannot physically pull someone from the wreckage, your orders are to execute Labor EL.
 
 1. **Unite the Broadcast:** The early followers did not pray in isolated panic. They united devotedly in prayer. A synchronized frequency is exponentially stronger than a scattered one.  
-2. **Hold the Intercessory Line:** Use the "Prayer Hand" protocol—intercession, petition, and thanksgiving. While the medical officers are in the hazardous zones at Fred Hutch fighting disease, the congregation must be executing Labor EL to provide the covering fire.  
+2. **Hold the Intercessory Line:** Use the "Prayer Hand" protocol—intercession, petition, and thanksgiving. While the medical officers are in the hazardous zones at USAMRICD fighting disease, the congregation must be executing Labor EL to provide the covering fire.  
 3. **Wait for the Resurrection:** The Vanguard stayed in Jerusalem, relying on local supporters and maintaining their prayer network until the Commander restored their hope.
 
 When you are disabled by fear or physical limitation, your faith is your weapon. You open your mind, you align your heart's frequency with the Commander, and you broadcast. That is Labor EL.
